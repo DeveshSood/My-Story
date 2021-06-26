@@ -1,1 +1,1 @@
-Once upon a time there lived a Crocodile in a forest, he had a friend monkey.
+Once upon a time there lived a Crocodile in a forest, he had a friend monkey. One day monkey came to meet the crocodile.
