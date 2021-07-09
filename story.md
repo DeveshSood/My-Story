@@ -1,1 +1,1 @@
-Once upon a time there lived a Crocodile in a forest, he had a friend monkey. One day monkey came to meet the crocodile. Monkey was hungry.
+Once upon a time there lived a Crocodile in a forest, he had a friend monkey. One day monkey came to meet the crocodile. Monkey was hungry. He decided to eat apples from the tree.
