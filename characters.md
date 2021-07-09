@@ -1,1 +1,1 @@
-Monkey, Crocodile, Crocodile's Wife and 2 fishes.
+Monkey, Crocodile, Crocodile's Wife, 2 fishes and a tiger.
